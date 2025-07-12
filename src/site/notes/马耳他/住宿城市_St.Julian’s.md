@@ -9,6 +9,14 @@
 #### Koi sushi&asian restaurant
 ![image.png|300](https://obsidan-1314364309.cos.ap-beijing.myqcloud.com/obsidan/20250713011453367.png)
 + 中餐你不吃这家我跟你拼了！😤 我在伦敦四年没吃过这么好吃的酸辣土豆丝 锅气太足了！！太好吃了！！ 水煮牛肉也是 肉超级嫩 还有一道小炒肉 很下饭 这家我们来的时候已经是晚上10:30了 没吃上过油肉拌面（面要提前约）我觉得他们家是盲点都好吃的程度！
+
+#### L' Ostricaio Paceville
+![image.png|300](https://obsidan-1314364309.cos.ap-beijing.myqcloud.com/obsidan/20250713012451678.png)
+
+![image.png|300](https://obsidan-1314364309.cos.ap-beijing.myqcloud.com/obsidan/20250713012404047.png)
++ 人均40欧
++ 有生鱼片，可能会窜
+
 #### The Avenue Restaurant
 ![image.png|300](https://obsidan-1314364309.cos.ap-beijing.myqcloud.com/obsidan/20250713005008966.png)
 ![image.png|300](https://obsidan-1314364309.cos.ap-beijing.myqcloud.com/obsidan/20250713005050639.png)
